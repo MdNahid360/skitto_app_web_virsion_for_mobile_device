@@ -1,0 +1,1 @@
+# skitto_app_web_virsion_for_mobile_device
